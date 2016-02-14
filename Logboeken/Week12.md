@@ -30,7 +30,8 @@ Vrije dag
 ####Opmerkingen
 * 
 
-##Vrijdag
+##Vrijdag (Vrije dag)
+Vrije dag
 ####Taken uitgevoerd
 * 
 
