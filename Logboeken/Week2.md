@@ -23,6 +23,7 @@
 * 
 
 ##Donderdag
+Studienocturne KTA
 ####Taken uitgevoerd
 * 
 
