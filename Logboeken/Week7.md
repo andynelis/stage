@@ -1,4 +1,4 @@
-# Week 7
+# Week 7 (paasvakantie)
 28/03/2016 - 01/04/2016
 
 ##Maandag (Vrije dag)
